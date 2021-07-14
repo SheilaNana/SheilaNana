@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Sheila
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking for a mentor.
+- 📫 How to reach me ...sheilanana77@gmail.com
+
